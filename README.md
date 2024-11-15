@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **maidailam2001@gmail.com**
 
-- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/17wcmAGvK53_AT4cdXJnEk20yUAnGYrsW/view?usp=sharing)
+- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/12GQNyvEWXFL8G7jeNcnkV8KVACLUphdE/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
